@@ -11,3 +11,6 @@
   - university-sponsored research programme
   - crowdfunding
   - CO2 savings certificates (e.g. for moors. Local and global businesses.)
+  - home office as a business
+  - 10 bucks per day camper parking lot
+  - small scale observatory
