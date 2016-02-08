@@ -10,4 +10,4 @@
   - eco-hotel business
   - university-sponsored research programme
   - crowdfunding
-  - CO2 savings certificates (e.g. for moors)
+  - CO2 savings certificates (e.g. for moors. Local and global businesses.)
